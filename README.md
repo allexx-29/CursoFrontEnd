@@ -1,1 +1,1 @@
-# Pessoal Pasta pessoal visando o treino dos dos projetos 
+# Pessoal Pasta pessoal visando o treino dos projetos 
